@@ -35,3 +35,19 @@ This song is called "S". I ranked this in 2nd because it's so pop, the taste of 
 
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/C-z-IckrQK8?si=9QonKP3vLgtxlJIq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+This song is called "Say Don't Go". I bet it's another a break up song but who cares or whatever except for the swifties who likes riddles (not me).
+
+This song's melody is like Red because Red was released before the release of the 1989 album. "Why she had to leave this on, Why she had to twist this song, walk away and leave this in the vault in the vault."
+
+
+
+
+
+
+
+
+
+
+
+
+
