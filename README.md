@@ -24,3 +24,8 @@ After **Braun Scooter** stole her music, she has to record it again to claim her
 
 The first on the list in **Is it over now**. 
 The vocals are good, the instruments are magnificent, I feel like this song is too perfect for the 1989 orginal track but it kinda similar to Out of the Woods so she had to unreleased it for good. But hey, the vault has a key and it is now unlocked, enjoy this masterpiece and have fun listening to it.
+
+
+
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qrxsceexTBw?si=yv_0g_1KF-5umQH8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
