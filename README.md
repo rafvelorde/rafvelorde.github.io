@@ -6,7 +6,7 @@ Hello, world.
 
 
 
-![image](https://github.com/rafvelorde/rafvelorde.github.io/assets/152232710/fda1c5da-76de-4aab-935e-c40e4b9f255b)
+![image](https://github.com/rafvelorde/rafvelorde.github.io/assets/152232710/2bcedbeb-7fa7-427b-a57a-e71aad2dd65b)
 
 
 
