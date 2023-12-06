@@ -9,7 +9,11 @@ This is **Taylor Swift**, the most famous famous megastar of all time, Micheal J
 ![image](https://github.com/rafvelorde/rafvelorde.github.io/assets/152232710/2bcedbeb-7fa7-427b-a57a-e71aad2dd65b)
 
 
+
+
 After **Braun Scooter** stole her music, she has to record it again to claim her rights. 1989 (Taylor's Version) was released on October 27 and I will rank her vault tracks that was unreleased during 2014. 
+
+
 
 
 
