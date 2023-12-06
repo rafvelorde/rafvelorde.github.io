@@ -48,6 +48,9 @@ This song's melody is like Red because Red was released before the release of th
 
 This song is called "**Now That We Don't Talk**".
 
+This is her one of her most popped song ever. The pre-chorus is extraordinary, the vocals are good, and her voice is like heaven. It makes my ears blessed and can be cleaned through the words are modt melody.
+
+
 
 
 
