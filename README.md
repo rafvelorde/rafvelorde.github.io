@@ -7,7 +7,7 @@ This is **Taylor Swift**, the most famous famous megastar of all time, Micheal J
 
 
 
-![ image](https://github.com/rafvelorde/rafvelorde.github.io/assets/152232710/2bcedbeb-7fa7-427b-a57a-e71aad2dd65b) with <img src="https://github.com/rafvelorde/rafvelorde.github.io/assets/152232710/2bcedbeb-7fa7-427b-a57a-e71aad2dd65b" width="100" height="100">
+![ image](https://github.com/rafvelorde/rafvelorde.github.io/assets/152232710/2bcedbeb-7fa7-427b-a57a-e71aad2dd65b) with <img src="https://github.com/rafvelorde/rafvelorde.github.io/assets/152232710/2bcedbeb-7fa7-427b-a57a-e71aad2dd65b" width="300" height="400">
 
 
 
