@@ -54,6 +54,10 @@ This is her one of her most pop song ever. The pre-chorus is extraordinary, the 
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/ZGBPKYbzSXs?si=PepYPsCNWwMzTuBF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
+This song is called "**Suburban Legends**"
+
+I recommend not to listen this boring song. (Sorry not sorry)
+
 
 
 
